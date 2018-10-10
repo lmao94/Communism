@@ -1,3 +1,6 @@
 # Communism
 WELCOME TO OUR STRANA, COMRADES!
 LENIN! STALIN! COMMUNISM!
+Партиные номера присвоены рядовым членам партии:
+Кристина, Илья, Никита, Женя.
+РАСПРОСТРАНЕНИЕ КОММУНИЗМА ПРОДОЛЖАЕТС!
